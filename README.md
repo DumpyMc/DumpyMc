@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DumpyMc
+- 👀 I’m interested in skripting, minecraft, server building.
+- 🌱 I’m currently learning 8th grade.
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me nothing
